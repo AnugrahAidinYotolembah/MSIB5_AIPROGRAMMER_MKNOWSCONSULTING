@@ -1,2 +1,2 @@
 # MSIB5_AIPROGRAMMER_MKNOWSCONSULTING
-this is my list project at masib 5 mknows consulting
+this is my list project at MSIB 5 mknows consulting
